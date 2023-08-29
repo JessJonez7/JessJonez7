@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JessJonez7
-- 👀 I’m interested in learning how to start a Virtual Executive Assistant business, as well as the restuarant business 
+- 👀 I’m interested in learning how to start a Virtual Executive Assistant business
 - 🌱 I’m currently learning how to improve my skills as an experienced Executive Assistant to C-Suite leaders
 - 💞️ I’m looking to collaborate on inspiring ideas 
 - 📫 How to reach me jessjonez@gmail.com
